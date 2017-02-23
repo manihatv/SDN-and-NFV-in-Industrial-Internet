@@ -6,5 +6,5 @@ Please feel free to contact me in case of any further details required with resp
 
 Mail ID: 
 
-viswanathan.bojan@gmail.com
+viswanathan.bojan@gmail.com | 
 viswanathan.research@gmail.com
